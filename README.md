@@ -1,2 +1,0 @@
-# carrerasafuturo
-elecciones a fututo
